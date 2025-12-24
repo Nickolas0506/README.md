@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Larissa Kich
+# 👩🏻‍💻 Nickolas Davi
 
 **`Desenvolvedora FullStack`**
 
